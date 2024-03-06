@@ -1,2 +1,2 @@
 # Rashini-Hettiarachchi
-Hello world, this is my profile
+Hi 👋, I'm Rashini Hettiarachchi
